@@ -10,3 +10,13 @@ hanuman
 meghnath
 ravan
 
+
+KRISHNA 
+balram
+arjun
+karna
+januman
+duriyodhan
+bhim
+pitamabisgm
+
